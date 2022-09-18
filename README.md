@@ -23,5 +23,5 @@ Kseniia is a creative traveller who always seeks adventures and develops herself
 
 ## Weaknesses
 
-- Self-criticism: it is always not enough, I think that I shold have done something better
+- Self-criticism: it is always not enough, I think that I should have done something better
 - Slight inattention: not always see mistakes or something tricky
